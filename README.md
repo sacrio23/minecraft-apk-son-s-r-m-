@@ -1,2 +1,2 @@
 # minecraft-apk-son-s-r-m-
-&lt;a href="https://mineapkhub.com/">Minecraft apk&lt;/a>
+&lt;a href="https://mineapkhub.com/">Minecraftapk&lt;/a>
